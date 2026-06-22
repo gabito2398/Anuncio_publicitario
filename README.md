@@ -1,1 +1,0 @@
-# Anuncio_publicitario
